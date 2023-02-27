@@ -1,0 +1,1 @@
+# minakons_repo
